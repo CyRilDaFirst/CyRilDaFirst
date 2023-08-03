@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @CyRilDaFirst
+- 👀 I’m interested in Programming, Music, Gaming(eSports), Anime etc
+- 📚 I'm currently a student
